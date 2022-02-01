@@ -14,7 +14,7 @@ Its hard to explain in words what the autonomous does, so i'll upload a picture 
 
 *************************************************************** METZ COMPETITION ***************************************************************
 We placed in 14 placed in the Metz COMPETITION. We also got 96 points in the skills competition. Not only that we got 130 points in the regular match.
-Plus we did really good in the Metz COMPETITION than the Battle of the bridge competition.  
+Plus we did really good in the Metz COMPETITION than the Battle of the bridge competition. 
 
 *************************************************************** METZ COMPETITION ***************************************************************
 
