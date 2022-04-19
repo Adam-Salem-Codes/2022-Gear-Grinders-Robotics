@@ -1,3 +1,3 @@
 # 2022-Gear-Grinders-Robotics-Repo
-This is our 2022 Gear Grinders Robotics Repository;
-We will put our Code and experiences in this Repository we might also include pictures of our enginnering Notebook.
+
+> Hello! This is all of the GearGrinders Team's Code for vEx Tipping Point 2022.
